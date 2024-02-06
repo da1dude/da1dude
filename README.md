@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am an energetic and dedicated individual who has a growth mindset that enjoys a challenge and working under pressure to deliver strong results. I provided expert guidance and work ethic to achieve 99.9% uptime of critical hardware and software for the mainframe storage environment. I want to bring my first class work ethic, thirst for knowledge and diverse skill set to this new opportunity. 
+[I am an energetic and dedicated individual who has a growth mindset that enjoys a challenge and working under pressure to deliver strong results. I provided expert guidance and work ethic to achieve 99.9% uptime of critical hardware and software for the mainframe storage environment. I want to bring my first class work ethic, thirst for knowledge and diverse skill set to this new opportunity. ]
 
 
 ## 🌐 Socials:
